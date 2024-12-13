@@ -4,7 +4,7 @@
 <br/><br/>
 <p align="center">KamㅤorㅤㄑㅤMariㅤ!!ㅤ𓎠𓎡ㅤshe ¹ㅤ⋮ㅤhe ²ㅤ6teen<p align="center">
 
-<p align="center">safeㅤserver.ㅤusuallyㅤatㅤmhaㅤarea.ㅤw2iㅤ།◡ ིྀ︶<p align="center">
+<p align="center">safeㅤserver.ㅤusuallyㅤatㅤmhaㅤareaㅤ&ㅤofftabㅤ།◡ ིྀ︶<p align="center">
 
 <p align="center">checkㅤrentryㅤㅤ━━╋━ㅤㅤsignㅤatabook<p align="center">
 <p align="center">
